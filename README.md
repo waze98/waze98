@@ -5,7 +5,7 @@
 
 🤓 My interests revolve around the intersection of **business**, **technology**, and **psychology**.
 
-![GIF](gif1.gif)
+![GIF](gif0.gif)
 
 
 ### 📫 Let's Connect!
