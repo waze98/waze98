@@ -6,7 +6,7 @@
 🤓 My interests revolve around the intersection of **business**, **technology**, and **psychology**.
 
 
-### 📫 Get in Touch!
+### 📫 Let's Connect!
 - [LinkedIn](https://www.linkedin.com/in/wgero/)
 
 
