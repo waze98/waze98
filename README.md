@@ -5,6 +5,6 @@
 My interests revolve around the intersection of **business**, **technology**, and **psychology**.
 
 ### 📫 Get in Touch!
-- [LinkedIn](https://www.linkedin.com/in/wendy-g/](https://www.linkedin.com/in/wgero/)
+- [LinkedIn](https://www.linkedin.com/in/wgero/)
 
 
